@@ -1,0 +1,1 @@
+# active-win10-EnterpriseEdition-LTSC
